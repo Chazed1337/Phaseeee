@@ -1,10 +1,7 @@
-github made me do this lmao
-
-
-- Yo, I'm Phase.
+- Yo, I'm Chazed.
 - 😳 I code veri scari mienkraft clients
-- 🌱 I am currenly developing la very good clierent Flower
-- 😭 People keep calimg me a skeid!11!
-- 📫 Me deiscerord is Phase#3901
-- ℹ️ https://discord.gg/2edUDQFdRu la Floweer clirent
+- 🌱 I am currenly developing la very good clierent Mist
+- 😭 People keep calimg me a skeid after flower!11!
+- 📫 Me deiscerord is Chazed#0001
+- ℹ️ https://youtube.com/chazedmc ma yootoob canel!1
 
