@@ -1,2 +1,2 @@
-Current discord: Phase#3901
-Somehow untermed for 1+ years
+Current discord: Chazed#0001
+Somehow untermed for 2 months
